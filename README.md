@@ -1,5 +1,5 @@
 ## Check this 👇
 
-Deploy your personal website in minutes here 👉 http://mzaremski.com/persite/ 👈
+Deploy your personal website in minutes here 👉 https://mzaremski.com/persite/ 👈
 
-Hire me? 👉http://mzaremski.com/👈
+Hire me? 👉https://mzaremski.com/👈
