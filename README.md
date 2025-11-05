@@ -1,5 +1,7 @@
-## Check this 👇
+## Check this out 🚀
 
-Deploy your personal website in minutes here 👉 https://mzaremski.com/persite/ 👈
+༄ Make magic with interiors 👉 https://przeprojektuj.pl/
 
-Hire me? 👉https://mzaremski.com/👈
+✨ Make magic on your sports videos: https://gpxoverlay.com/
+
+🔮 Make magic with me: https://mzaremski.com/
